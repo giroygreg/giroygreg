@@ -1,5 +1,6 @@
 # 👋 Hi, I’m @giroygreg
 
+![AR](./AR.jpg)
 - 👀 I’m interested in staying under the radar, climbing the corporate ladder (without causing too much trouble), and figuring out how to be a part of the Roy family dynasty.
 - 🌱 I’m currently learning the ropes of corporate politics, the art of covering my tracks, and maybe a bit of legalese—just in case.
 - 💞️ I’m looking to collaborate on anything that won't get me in trouble with the Roys or put me in the crossfire. If it looks safe, count me in!
