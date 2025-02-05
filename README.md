@@ -8,6 +8,8 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I once threw up in a mascot suit at a company amusement park. It was a rough day. 
 
+![IMG_0126](./IMG_0126.jpeg)
+
 <!---
 giroygreg/giroygreg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
